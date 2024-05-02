@@ -1,3 +1,5 @@
+## PROJECT NO LONGER ACTIVE :(
+
 # Rituale
 # Grow with small habits
 
